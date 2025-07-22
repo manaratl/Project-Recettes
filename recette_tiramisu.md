@@ -1,11 +1,11 @@
  Recette du Tiramisu
 Ingrédients :
 
-3 œufs
+2 œufs
 
 100g de sucre
 
-250g de mascarpone
+200g de mascarpone
 
 200g de boudoirs (biscuits à la cuillère)
 
